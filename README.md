@@ -2,7 +2,7 @@
 
 
 
-La musique accompagne nos plus beaux moments.
+La musique accompagne chaque instant de notre vie.
 
 
 
