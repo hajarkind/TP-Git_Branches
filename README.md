@@ -2,7 +2,7 @@
 
 
 
-La musique accompagne nos plus beaux moments.
+La musique est un langage universel.
 
 
 
